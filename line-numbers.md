@@ -6,7 +6,10 @@
 #### 6
 #### Why you always lion?
 #### 8
-#### GitHub is really good.
+
+
+#### Github is really awesome
+
 #### 10
 #### 11
 #### 12
