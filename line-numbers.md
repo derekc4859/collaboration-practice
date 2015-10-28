@@ -12,7 +12,6 @@
 
 #### NOBODY LIKES YOUR TOUCAN!
 #### 11
-#### 12
-#### 13
+#### (`)> Le budget toucan has arrived
 #### 14
 #### 15
