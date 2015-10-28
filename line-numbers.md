@@ -4,7 +4,7 @@
 #### 4
 #### what are those
 #### 6
-#### Why you always lion?
+
 #### 8
 
 
